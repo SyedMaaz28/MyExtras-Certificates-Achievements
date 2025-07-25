@@ -1,0 +1,1 @@
+## Syed Maaz's Certifications and Achievements
